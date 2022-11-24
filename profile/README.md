@@ -1,3 +1,3 @@
 ```
-Contact: @ boobfuck (at) protonmail (dot) com
+Contact: boobfuck (at) protonmail (dot) com
 ```
